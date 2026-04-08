@@ -1,1 +1,0 @@
-# Practo-clone
